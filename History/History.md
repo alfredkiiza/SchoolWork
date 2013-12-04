@@ -37,4 +37,14 @@ Having succeeded in publicly rearming, Hitler decided to press his advantage wit
 Like many Austrians, Hitler considered himself first and foremost a German, and resented what he considered the artificial division of Germany after the Frano-Prussian war. A native of Austria, Hitler's triumph in Germany served to rally the far right in Vienna and other major Austrian cities.
 Although initially suppressed by the Austrian government, the Nazi party grew into a great force. The Austrian government's refusal to pursue such a policy led to considerable political violence. An assassination occurs. 
 
+---
+
+# The Sino-Japanese War
+
+## The Failure of Democracy
+
+The Japanese political system favored strongemperor over a weakened Diet (parliament). During the 1910's and early 1920's 
+the throne was held by Taisho, whose reclusive nature and ill-defined health problems make him problematic for historians to this day.
+While this did allow for the development of political factions, it also greatly strengthened the military leadership who chafed at Japan's subordinate status in the internal balance of power. As exemplified by the Washington Naval Conference which limited the Japanese fleet to a fraction
+
 
