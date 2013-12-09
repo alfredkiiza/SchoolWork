@@ -64,7 +64,7 @@ Spain's sole remaining substantial colony in 1919 was Morocco, and even then lac
 
 ## The Turn Towards Authoritarianism
 
-WIth the Madrid government seemingly unable to secur a final victory over the Moroccans, many members of the military grew disillusioned with civilian rule. A high-ranking Barcelona army officer, Miguel Primo de Rivera, asks King Alfonso to dissolve the government and appoint him prime minister. The king's acquiescence in this bloodless military coup would set the stage for years of conflict between the Spanish Left and Right.
+WIth the Madrid government seemingly unable to secure a final victory over the Moroccans, many members of the military grew disillusioned with civilian rule. A high-ranking Barcelona army officer, Miguel Primo de Rivera, asks King Alfonso to dissolve the government and appoint him prime minister. The king's acquiescence in this bloodless military coup would set the stage for years of conflict between the Spanish Left and Right.
 
 ## Franco
 
@@ -74,10 +74,16 @@ Rising officer in the Rif War, a prominent early support of Rivera, Franco was a
 
 While Franco was a supporter of Rivera, he was intelligent enough to keep his distance; when it became clear that Rivera was unable to cope with Spain's deep economic problems, the pseudo-dictator lost popular support. King Alfonso called for a new election, which would be the first to be held freely and fairly in Spain for more than 60 years. The outcome was a resounding victory for left-wing republican parties. ALfonso XIII abdicated and Miguel Azana, a political opponent of Franco, became the prime minister after a brief provisional government. 
 
+---
+
+<center># Case White</center>
+
+<b><center>The Polish Campaign in World War II</center></b>
+
+## Summer of 1939
+
+In the summer of 1939, the continent of Europe enjoyed an uneasy peace. Britain and France, the largest military powers in the world, appeared on paper to be the strongest they had ever been. While Adolf Hitler's Germany had expanded dramatically over the past two years, the German Chancellor apparently had been placated; his territorial ambitions sated, the indignities of Versailles a thing of the past. Neville Chamberlain's appeasement policy appeared to have worked.
 
 
 
-
-
-
-
+ 
