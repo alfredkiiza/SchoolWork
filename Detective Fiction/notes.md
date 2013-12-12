@@ -1,12 +1,12 @@
 # Notes for Monday
 
-Sir Henry had arrived in london, he gets a note crafted from newspaper article notes that threaten him to not go to the moor.
+Sir Henry had arrived in London, he gets a note crafted from newspaper article notes that threaten him to not go to the moor.
 
 Holmes decided to search the wastebaskets for the hotels...
 
 He also noticed that the man had a beer; they sent a telegram to the morgue immediately to be delivered to Barrymore.
 
-The identification of the carrage it had a number on it : 
+The identification of the carriage it had a number on it : 
 
 "Barrymore is at the hall" - couldn't be him
 
