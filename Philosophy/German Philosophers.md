@@ -13,3 +13,13 @@
 
 <center>Kant believed that the Noumenal world was <b>Transcendental</b></center>
 
+## Arthur Schopenhauer (1788-1860)
+
+1. Schopenhauer is the first philosopher to be strongly influence by Eastern religious philosophy. 
+Especially <b>Buddhism</b>
+
+2. He believed we are all part of one soul; this explains his word <i>compassion</i> - the ability of human being to feel for one another. 
+Compassion he believes, is the foundation of ethics and love.
+
+3. Schopenhauer had a pessimistic view of life; all species live by hunting and killing of their own species. 
+
