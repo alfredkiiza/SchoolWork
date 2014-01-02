@@ -24,4 +24,13 @@ While the United States in many ways forced the modernization of Japan, as the 2
 
 Ultimately, FDR's outrage with Japanese atrocities in the pacific led to sweeping sanctions in the summer of 1941, meant o cripple Japan's ability to make war. FDR imposed sanctions on exports of rubber, iron, aluminum, and oil. A classified report on Japanese military resources (later recovered by the US), dated July 1941 estimated that the Japanese military would run out of fuel by the end of the year.
 
- 
+## Yamamoto
+
+In the summer of 1941, the Japanese naval commander Admiral Isoruku Yamamoto, was called upon to draft a daring strategy to cripple the American Pacific fleet, which FDR had provocatively moved to Hawaii from San Fran. Yamoto had attended various exchange programs in the United States even attending seminars at the Naval Academy in Annapolis. He had a deep understanding of the US.
+
+## A Day Which Will Live in Infamy
+
+The US had cracked Japan's diplomatic code months in advance of Pearl Harbor, and mistakenly believed that an attack was coming in the Philippines, far from America's ability to project power. Consequently, American aircraft carriers were absent in the first weeks of December, 1941, delivering planes to US Navy and Marine bases across the Pacific. The strongest weapons in the American arsenal managed to escape the Japanese sneak attack that disabled Pearl Harbor well into 1942 and killed many US servicemen.
+
+
+
