@@ -30,7 +30,4 @@ In the summer of 1941, the Japanese naval commander Admiral Isoruku Yamamoto, wa
 
 ## A Day Which Will Live in Infamy
 
-The US had cracked Japan's diplomatic code months in advance of Pearl Harbor, and mistakenly believed that an attack was coming in the Philippines, far from America's ability to project power. Consequently, American aircraft carriers were absent in the first weeks of December, 1941, delivering planes to US Navy and Marine bases across the Pacific. The strongest weapons in the American arsenal managed to escape the Japanese sneak attack that disabled Pearl Harbor well into 1942 and killed many US servicemen.
-
-
-
+The US had cracked Japan's diplomatic code months in advance of Pearl Harbor, and mistakenly believed that an attack was coming in the Philippines, far from America's ability to project power. Consequently, American aircraft carriers were absent in the first weeks of December, 1941, delivering planes to US Navy and Marine bases across the Pacific. The strongest weapons in the American arsenal managed to escape the Japanese sneak attack that disabled Pearl Harbor well into 1942 and killed many US servicemens.
