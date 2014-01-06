@@ -30,4 +30,20 @@ In the summer of 1941, the Japanese naval commander Admiral Isoruku Yamamoto, wa
 
 ## A Day Which Will Live in Infamy
 
-The US had cracked Japan's diplomatic code months in advance of Pearl Harbor, and mistakenly believed that an attack was coming in the Philippines, far from America's ability to project power. Consequently, American aircraft carriers were absent in the first weeks of December, 1941, delivering planes to US Navy and Marine bases across the Pacific. The strongest weapons in the American arsenal managed to escape the Japanese sneak attack that disabled Pearl Harbor well into 1942 and killed many US servicemens.
+The US had cracked Japan's diplomatic code months in advance of Pearl Harbor, and mistakenly believed that an attack was coming in the Philippines, far from America's ability to project power. Consequently, American aircraft carriers were absent in the first weeks of December, 1941, delivering planes to US Navy and Marine bases across the Pacific. The strongest weapons in the American arsenal managed to escape the Japanese sneak attack that disabled Pearl Harbor well into 1942 and killed many US servicemen.
+
+# The Pacific Theater
+
+## Clash of the Titans
+
+By December of 1941, the United States and the empire of Japan fielded two of the world's largest blue-water navies, in terms of manpower and of tonnage. In addition to their sheer size, the US and Japanese fleets were also considerably more technologically and strategically advanced than their peers- while nations like Germany and France retained the "dreadnought" theory of naval war. The aircraft carrier is pretty badass. 
+
+## The Japanese Offensive
+
+While Pearl harbor still burned, the Japanese fleet and army set about dislodging European militaries and colonial governments from their territories in the Pacific. From Dec, 1941 to Feb, 1942, the Japanese attacked Malaya, Burma, Singapore, and a variety of other territories. The Japanese offensive in the Pacific represented the fruition of years of long-term strategy.
+
+## Bataan
+
+True to FDR's predictions, the Phillippines proved impossible to defend. US and Filipino soldiers put up a bold defense, but ultimately MacArthur was forced to retreat. Thousands of Americans and Filipinos went into captivity and were set on a forced march to a prison camp miles away. POWs were denied food and water; in addition to the malarial conditions, many soldiers succumbed to dehydration and exhaustion. 
+
+
