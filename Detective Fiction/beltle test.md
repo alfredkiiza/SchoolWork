@@ -55,16 +55,21 @@ All links on Beltle e-board for vocab and other shit.
 
 // These fools all relate to <b>Baskerville Hall</b>
 
-+ Stapleton
-	Roger's son
++ Stapleton - Rodger's Son
 
-+ Beryl Stapleton
-	Sister/wife
++ Beryl Stapleton - Sister/wife
+	
++ Frankland - Lofter
 
-+ Frankland
-	Lofter
+<hr>
 
+## Key Elements ?
 
++ Brown boots were new - no scent - That is why he took them.
 
++ Franklin tells Watson about the stranger out on the moor - looks through a telescope and sees the boy - heads out there - and finds that the stranger on the moor is <b>Sherlock Holmes</b>.
 
++ Where did Seldon get the clothing? - <b>Barrymores</b>
+
++ Seldon is Mrs.Barrymores brother.
 
