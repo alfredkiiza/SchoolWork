@@ -23,3 +23,16 @@ Compassion he believes, is the foundation of ethics and love.
 
 3. Schopenhauer had a pessimistic view of life; all species live by hunting and killing of their own species. 
 
+## Karl Marx (1818-1883)
+
+1. Marx believed that history was a process that leads to political freedom
+
+2. He thought the current (1800's) way of life was determined by <b>Capitalism</b> (People with money hire people without money to make things)
+
+3. Marx believed Capitalism would burn itself out, and <b>Communism</b> would prevail
+
+4. Under Communism, people would work for themselves and the "common good"
+
+5. Marx's friend, <b>Friedrich Engels</b>, supported him and his family most of his life.
+
+
