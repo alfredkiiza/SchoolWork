@@ -35,4 +35,16 @@ Compassion he believes, is the foundation of ethics and love.
 
 5. Marx's friend, <b>Friedrich Engels</b>, supported him and his family most of his life.
 
+## Friedrich Nietzsche (1844-1900)
 
+1. His father and grandfather were Lutheran ministers, but Nietzsche believed there is no God, and that we do not have immortal souls, and that life is largely meaningless.
+
+2. But, we still have to live or lives to the fullest.
+
+3. "Will to Power" is Nietzsche's term for the desire to live life to the fullest.
+
+4. "The Superman" is Nietzsche's term for the individual who develops their life to its "full potential"
+
+5. He urged all humans to "Dare to become what you are."
+
+6. He greatly influenced European writers and poets, and his works were admired by the likes of <b>Adolf Hitler</b> and <b>Benito Mussolini.</b>
