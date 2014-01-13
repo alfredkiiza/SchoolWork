@@ -26,4 +26,3 @@ With the Germans now in full retreat, the Russians pushed forward into the Crime
 
 As the Soviet forces lumbered towards Poland in late 1944, the Polish Home Army launched a rebellion across the country. One of the major centers of this uprising was in the Jewish ghetto in Warsaw. Despite the fact that Soviet agents had promised assistance to the local insurgents, Stalin deliberately refused to provide aid, wishing to sweep the field clear of any resistance to the incoming Soviet occupation. As a result, the Gestapo was able to seal off the ghetto and wait the rebellion out When theGermans finally moved in, the massacred th remaining Jews of Warsaw.
 
-
