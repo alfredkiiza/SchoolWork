@@ -11,3 +11,15 @@ A new framework for multilateral diplomacy was obviously needed; the League had 
 ## Ratification
 
 The treaty ratifying the new international organization was signed in San Francisco on April 25, 1956, before either Nazi Germany or Imperial Japan had surrendered. Six official languages were declared: English, French, Russian, Spanish, Chinese, and Arabic. The first meetings of the new organization, dedicated to "save succeeding generations from the scourge of war, which twice in our lifetime has brought untold sorrow to mankind" were held in London in Jan of 1946, until a new, permanent headquarters could be established in the city with the greatest claim to the leadership of the international community: New York 
+
+# Crisis in Berlin
+
+## Nation of Ruins
+
+Hitler had predicted that the 3rd Reich would last for 1,000 years. It would be bombed out of existence in slightly more than 12. After WWI, Germany had been defeated but left intact; its major cities were untouched by warfare, and Germany's economy would be more impacted by reparations than reconstruction. 
+
+## The Partition of Berlin
+
+While Germany would be divided into four occupation zones, Berlin itself would be split in half. As a concession agreed upon at the YaltaConferece, Berlin would be split into two zones, each occupied by either the Western allies or the USR. Lodged deeply in Soviet territory, West Berlin became a conduit for Germans seeking to escape Communist governance. West Berlin would recover quickly, and would become one of the wealthiest centers of Europe. While Easter Berlin would be rebuilt, and would become the wealthiest city of the Eastern Bloc, it suffered a comparatively poor standard of living.
+
+
