@@ -14,3 +14,9 @@ God revealed Himself by saying -
 
 "I am Who am"
 
+The people of Good learned to know and love their God, especially by his interaction with them. God spoke to their leaders and prophets and through these dialogues He built His community, based on a covenant.
+
+<b>Covenant</b> - The agreement established between God and the ancient Israelites, first through Abraham and later through, oses, that designates the Jews as God's Chosen People, with special rights and responsibilities.
+
+<b>Responsibility of Israelites</b> - TO have no God except for Him. To follow his commandments. 
+
